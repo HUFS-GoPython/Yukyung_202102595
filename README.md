@@ -1,2 +1,2 @@
-# LeeYukyung_202102595
+# YukyungLee_202102595
 첫 과제
